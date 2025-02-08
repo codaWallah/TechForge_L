@@ -51,7 +51,7 @@ We welcome *developers, designers, and tech enthusiasts* to contribute! Follow t
 Have questions or want to collaborate? Reach out to us!  
 
 🌍 *Website:* https://ciphermystic.me  
-📩 *Email:* mohd.anash@niu.edu.in  
+📩 *Email:* admin@techforgeleague.live  
 💬 *Community:* Whatsapp
 📢 *Follow Us:* LinkedIn | Instagram 
 
